@@ -1,2 +1,1 @@
-# Webtest
-## Sick dude
+Direct Link: https://gamermelonca.github.io/CJ-Portfolio/
